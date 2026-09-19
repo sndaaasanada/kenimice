@@ -1,6 +1,6 @@
 - 👋 Hi
-- 👀 I’m interested in guitar, Rubic cube, Programming.
-- 🌱 I’m currently learning Korean and French
+- 👀 I love math
+- 🌱 I’m currently learning Korean and French.
 - 📫 How to reach me ...
-- 😄 Pronouns: portable nine
+- 😄 Pronouns:
 - ⚡ Fun fact: ...
